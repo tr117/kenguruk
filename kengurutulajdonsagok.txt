@@ -1,1 +1,5 @@
-A kenguru tulajdonságai:
+﻿A kenguru tulajdonságai:
+
+Az állatok országához tartozik
+Alosztályág :erszényes
+
