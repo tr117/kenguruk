@@ -1,4 +1,7 @@
 # kenguruk
 Itt gyakorolhatod a hozzájárulást. 
-Kengurok nagyon aranyos és veszélyes állatok.
-Szépek de vadak!
+A kenguruk veszélyes állatok de nagyon aranyosak.
+
+
+EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE -Jambrik Viola
+
